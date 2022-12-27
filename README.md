@@ -1,0 +1,3 @@
+# referenceNotes
+
+- It's just to save my links and texts that I've searched from Websites, books, etc...
